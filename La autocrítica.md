@@ -1,0 +1,1 @@
+Hay que empezar a criticarnos a nosotros mismos para ver nuestras fortalezas y deficiencias
